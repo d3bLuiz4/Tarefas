@@ -1,1 +1,1 @@
-# Essa bosta não vai
+# Essa bosta não vai (odeio backend)
